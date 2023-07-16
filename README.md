@@ -1,0 +1,2 @@
+# PulauSumbaSurganyaNttIndonesia
+Trisno
